@@ -102,6 +102,7 @@
 + Lukluk Luhuring Santoso: [@luklukluhuringsantoso](https://medium.com/@luklukluhuringsantoso)
 + Luri Darmawan: [@luridarmawan](https://medium.com/@luridarmawan)
 + Lutfi Dwica: [@dwicao](https://medium.com/@dwicao)
++ Lina : [@zanikolina2](https://medium.com/@zanikolina2)
 
 ## M
 
